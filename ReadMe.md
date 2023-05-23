@@ -1,5 +1,5 @@
 # 💫 About Me:
-Estudante de Análise e Desenvolvimento de Sistemas e com formção na área de Minas e Energia.<br>Estou a procura de oportunidade na área de tecnologia. 
+Estudante de Análise e Desenvolvimento de Sistemas e com formação na área de Minas e Energia.<br>Estou a procura de oportunidade na área de tecnologia. 
 
 
 ## 🌐 Socials:
